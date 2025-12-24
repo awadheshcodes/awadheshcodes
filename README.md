@@ -1,4 +1,4 @@
-## Hi 👋 I'm Awadhesh Kumar Patel
+## Hi 👋 I'm Awadhesh Patel
 
 🎓 MCA Student at Banaras Hindu University (BHU)  
 💻 Aspiring Web / Software Developer  
